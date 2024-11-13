@@ -1,5 +1,5 @@
 # Mast90105_
 
- very useful and practical subject. Different critical conceptions about stat were introduced by it. plus, the teacher is pretty nice and responsible!
+A Very elementary but practical subject. Various critical conceptions about statistics were introduced. Plus, the teacher is pretty nice and responsible!
 
 Final mark: 89/100
